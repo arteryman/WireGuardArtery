@@ -24,7 +24,7 @@
 ---
 
 **کانال سازنده:**  
-[t.me/ownerArter](https://t.me/ownerArtery)
+[t.me/ownerArtery](https://t.me/ownerArtery)
 
 ---
 
